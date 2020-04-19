@@ -1,1 +1,0 @@
-# takasoap.github.io
